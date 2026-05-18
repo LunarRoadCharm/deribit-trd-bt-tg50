@@ -1,4 +1,4 @@
-# 
+# best bybit trading bot addons is the best bybit trading bot addons with slippage-control and position-sizing. Safe, reliable, and optimized for CEX, DEX, and algorithmic trading
 
 
 
